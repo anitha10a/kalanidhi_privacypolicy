@@ -2,7 +2,7 @@
 
 *Privacy Policy*
 
-Smart Start Services built the Dr. Kalanidhi app as a Free app. This SERVICE is provided by Smart Start Services.
+Smart Start Services built the Dr. Kalanidhi app. This SERVICE is provided by Smart Start Services.
 
 This page is used to inform visitors regarding our policies with the collection, use, and disclosure of Personal Information if anyone decided to use our Service.
 
